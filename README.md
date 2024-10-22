@@ -1,1 +1,1 @@
-# s7michael-assets
+# Eric-do-it-yourself-Assets
